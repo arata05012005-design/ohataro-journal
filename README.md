@@ -1,1 +1,1 @@
-https://arata05012005-design.github.io/ohataro-journal/
+https://arata05012005-design.github.io/ohataro-journal/index.html
